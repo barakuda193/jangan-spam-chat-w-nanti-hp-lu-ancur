@@ -1,0 +1,1 @@
+# jangan-spam-chat-w-nanti-hp-lu-ancur
